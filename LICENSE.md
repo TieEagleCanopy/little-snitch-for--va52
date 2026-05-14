@@ -1,4 +1,4 @@
-# 
+# exclusive Little Snitch for macOS Addon | anti-tracking + secure-backup offers the most advanced Little Snitch for macOS addon, with anti-tracking and secure-backup. Ideal for
 
 
 
